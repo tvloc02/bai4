@@ -1,3 +1,3 @@
 ***BIT230242 - TRẦN VIỆT LỘC***
 
-![Hình ảnh kết quả](https://i.imgur.com/9MucYm2.png)
+![Hình ảnh kết quả](https://i.imgur.com/GRyaF88.png)
